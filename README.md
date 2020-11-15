@@ -1,1 +1,0 @@
-# andrewgalicia.github.io
